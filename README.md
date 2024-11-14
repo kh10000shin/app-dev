@@ -9,6 +9,7 @@ The Horus Heresy was a galaxy-spanning civil war that pitted half of the Space M
 
 **Part I: The Beginning**
 ![20 Primarchs](https://github.com/user-attachments/assets/e0cead94-7f98-421f-a22e-1a4f3ccd416d)
+
 	The Emperor of Mankind has created 20 genetically-engineered super humans for the sole purpose of conquering the galaxy, through the use of his DNA and technologies created deep beneath the Himalayan mountains. With these 20 sons of the Emperor, they’ll lead his armies into space and reunite all the scattered human colonies. 
  
   	The Dark Gods of Chaos however anticipated this act and plotted together in order to prevent the God Emperor from achieving this, thus when the primarchs (collective name for the Emperor’s sons) are still in their infant stage and in a capsule. The Dark Gods have opened a warp storm and hurled the primarchs into different sectors of the universe.
