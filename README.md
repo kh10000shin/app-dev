@@ -1,4 +1,5 @@
-![40K-Gallery-0243](https://github.com/user-attachments/assets/fbaf60ae-f6a5-455e-a28a-9d0025d11746)#THE HORUS HERESY#
+### The Horus Heresy
+![40K-Gallery-0243](https://github.com/user-attachments/assets/fbaf60ae-f6a5-455e-a28a-9d0025d11746)
 ![Horus Heresy](https://github.com/user-attachments/assets/d3f74463-a4ac-4bce-b793-1f4f6be9c221)
 
 *"I never wanted this, I never wanted to unleash my legions. Together we banished the ignorance of Old Night, but you betrayed me, you betrayed us all. You stole power from the Gods and lied to your sons. Mankind has only one chance to prosper, if you will not seize it then I will. So let it be war, from the skies of Terra to the Galactic rim. Let the seas boil, let the stars fall. Though it takes the last drop of my blood, I will see the galaxy freed once more and if I cannot save it from your failure Father, then let the galaxy burn!"*
