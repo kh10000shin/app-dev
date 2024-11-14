@@ -1,10 +1,11 @@
-#THE HORUS HERESY
+#THE HORUS HERESY#
 ![Horus Heresy](https://github.com/user-attachments/assets/d3f74463-a4ac-4bce-b793-1f4f6be9c221)
 
 *"I never wanted this, I never wanted to unleash my legions. Together we banished the ignorance of Old Night, but you betrayed me, you betrayed us all. You stole power from the Gods and lied to your sons. Mankind has only one chance to prosper, if you will not seize it then I will. So let it be war, from the skies of Terra to the Galactic rim. Let the seas boil, let the stars fall. Though it takes the last drop of my blood, I will see the galaxy freed once more and if I cannot save it from your failure Father, then let the galaxy burn!"*
-                                                                                                                                                                                    *-Horus Lupercal during the Horus Heresy.*
+                                                                                                                                                                                 *-Horus Lupercal during the Horus Heresy.*
                                                                                                                                                                                     
 **Background:**
+
 The Horus Heresy was a galaxy-spanning civil war that pitted half of the Space Marine Legions against their God Emperor. Horus Lupercal, and fellow primarchs turned traitor, seduced by the Chaos Gods. The ensuing conflict was a brutal and bloody war that nearly destroyed the Imperium of Man. The Heresy ended with Horus's defeat, but the scars of the war still haunt the galaxy.
 
 **Part I: The Beginning**
