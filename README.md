@@ -27,6 +27,7 @@ The Horus Heresy was a galaxy-spanning civil war that pitted half of the Space M
 	  The Emperor of Mankind was wounded in battle by one of these beast and once the orc is going to deliver the death blow, Horus swiftly decapitates its head and saves his father. From this deed, the Emperor of Mankind proclaimed Horus as the “Warmaster” which will lead and plan the entire great crusade in place of his father. Horus though was amicable at first, he still can’t shake the feeling that his Father isn’t going to join his and his brothers side anymore.
 
 **Part III: The Humiliation of Lorgar**
+
   	One of the primarchs named Lorgar Aurelian was the most devoted and willing son of the Emperor however for this faith, he’ll only received shame and ignominy from his fellow brothers. Fate will have him shunned from the eyes of his fellow primarchs and only punishment is his reward. The Dark Gods have planned to use him and his faith in order to corrupt the most favored son of the Emperor.
    
   	Lorgar though was a man of compliance and willingly follow the order and will of the Emperor, was one of the slowest primarchs in conquering planets. His ideologies and creed clashes with the Emperor with him revering him as a God and the Emperor’s ideologies of “The Imperial Truth” from which it forbids magic, idolization, and accomplishments through science is only the truth. 
@@ -36,6 +37,7 @@ The Horus Heresy was a galaxy-spanning civil war that pitted half of the Space M
   	This started what was known as “The Pilgrimage of Lorgar”, which was a 40-day pilgrimage of Lorgar and his sons to other worlds in order to seek other gods for his devotion. He comes across a world where the tribes were worshipping beings that grant them powers and heals them from their ailments. These gods however were the Chaos Gods and the tribespeople as their followers. Intrigued by these gods, Lorgar willingly gave his devotion to them from which the Chaos Gods can start corrupting him and his other brothers.
    
 **Part IV: Horus Rising**
+
 	Horus was deep in his thoughts on why the God Emperor gave him the entire command of the crusade and retreated deep into the Himalayas. He pondered that question every time he’s not conquering a planet. If he doesn’t even trust his most favored Son, then what else is the reason for all of their conquest? 
  
 	Lorgar stalked Horus as he conquered worlds, after he finished conquering a hard-fought world from other xenos. He eventually contacted Horus under the guise of pacifying a world but rather a plan by him and the Dark Gods to corrupt Horus.
@@ -44,6 +46,7 @@ The Horus Heresy was a galaxy-spanning civil war that pitted half of the Space M
 
 
 **Part V: Corruption of the Mind**
+
   They brought Horus deep within a temple, and from their none knows what have transpired and happened but Horus came out fully revitalized and rejuvenated from his injuries. Even astonished that he had gain additional strength that was on par or even greater than his most physically strongest brother. 
   
   In truth, the Dark Gods have already made him their pawn without him knowing, they whispered temptations, lies, and deceptions. Feeding him his already confused mind with thoughts of rebellion and that the God Emperor has left them. Thoughts of humanity being a violent theocratic selfish and repressive society. Horus seek out Magnus the Red, one of his primarch brothers that excels in magic to confirm if his visions are true.
@@ -68,7 +71,7 @@ Curze of the Night Lords, torn by his nightmarish visions and endless suffering 
 
 Perturabo a primarch of the Iron Warriors who’s in rivalry of another primarch named Rogal Dorn. He was deprived of affection from his Father and seeks the approval of his brothers easily joins Horus.
 
-  Once he gathered all of his traitor primarchs, he made a plan for he was outnumbered 3-1 when all of their armies combined. He tasked 3 of the loyalist armies and their primarchs in conquering a world known as Istvaan – III which was filled by demonic entities that were released by the Dark Gods of Chaos. Coined as the start of Horus Heresy, Loyalists elements within the traitor primarchs were dropped into the planet from which they were virus-bomb from orbit. This results in the deaths of a multitude of loyalist legionnaires. However, a lone Emperor’s Children loyalist, had a terrible hunch and remained within the fleet, when he saw the virus bombing of Istvaan – III he quickly boarded a small vessel and fled while being pursued.
+	Once he gathered all of his traitor primarchs, he made a plan for he was outnumbered 3-1 when all of their armies combined. He tasked 3 of the loyalist armies and their primarchs in conquering a world known as Istvaan – III which was filled by demonic entities that were released by the Dark Gods of Chaos. Coined as the start of Horus Heresy, Loyalists elements within the traitor primarchs were dropped into the planet from which they were virus-bomb from orbit. This results in the deaths of a multitude of loyalist legionnaires. However, a lone Emperor’s Children loyalist, had a terrible hunch and remained within the fleet, when he saw the virus bombing of Istvaan – III he quickly boarded a small vessel and fled while being pursued.
   
   Horus then renounced his oath to his Father and openly rebelled in Istvaan – V. There he waited the response from his Father, not knowing that he already corrupted half of the primarchs. The Emperor’s Children loyalist managed to get into Magnus the Red’s capital home world of Prospero and relay his message to the rebellion of Horus. Magnus in his arrogance, recklessness and selfish pride projects a psychic imagery which penetrates the defensive barriers of the God Emperor’s laboratory in the Himalayas. 
   
@@ -83,6 +86,7 @@ Perturabo a primarch of the Iron Warriors who’s in rivalry of another primarch
 
 
 **Part VII: Death of an Empire**
+
   The battle begins with a torrential rainfall of void bombardments, flak cannons were targeting incoming missiles and void shield protecting Earth from the entire fleet of Horus. Landfall was only made after Horus having his patience tested to its limits lunch one of the larger ship of his fleet into the void shield which destroys both the ship and the void shield.  
   
   What follows was a series of wave attacks made by the Traitor Legions though their numbers and powers were great, there was no cohesion and each have their own agendas. What’s worst is that Lorgar in his pride and ego thought he deserved much more openly rebel against Horus taking a significant amount of his fleet and fleeing the battle. The battle however was going on Horus’ side and the God Emperor made a desperate gamble in order to win against Horus.
