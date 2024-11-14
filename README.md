@@ -6,7 +6,8 @@
                                                                                                                                                                                     
 **Background:**
 
-The Horus Heresy was a galaxy-spanning civil war that pitted half of the Space Marine Legions against their God Emperor. Horus Lupercal, and fellow primarchs turned traitor, seduced by the Chaos Gods. The ensuing conflict was a brutal and bloody war that nearly destroyed the Imperium of Man. The Heresy ended with Horus's defeat, but the scars of the war still haunt the galaxy.
+The Horus Heresy was a galaxy-spanning civil war that pitted half of the Space Marine Legions against their God Emperor. Horus Lupercal, and fellow primarchs turned traitor, seduced by the Chaos Gods. 
+The ensuing conflict was a brutal and bloody war that nearly destroyed the Imperium of Man. The Heresy ended with Horus's defeat, but the scars of the war still haunt the galaxy.
 
 **Part I: The Beginning**
 ![20 Primarchs](https://github.com/user-attachments/assets/e0cead94-7f98-421f-a22e-1a4f3ccd416d)
