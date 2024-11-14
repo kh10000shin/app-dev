@@ -1,4 +1,4 @@
-#THE HORUS HERESY#
+![40K-Gallery-0243](https://github.com/user-attachments/assets/fbaf60ae-f6a5-455e-a28a-9d0025d11746)#THE HORUS HERESY#
 ![Horus Heresy](https://github.com/user-attachments/assets/d3f74463-a4ac-4bce-b793-1f4f6be9c221)
 
 *"I never wanted this, I never wanted to unleash my legions. Together we banished the ignorance of Old Night, but you betrayed me, you betrayed us all. You stole power from the Gods and lied to your sons. Mankind has only one chance to prosper, if you will not seize it then I will. So let it be war, from the skies of Terra to the Galactic rim. Let the seas boil, let the stars fall. Though it takes the last drop of my blood, I will see the galaxy freed once more and if I cannot save it from your failure Father, then let the galaxy burn!"*
@@ -11,6 +11,7 @@ The ensuing conflict was a brutal and bloody war that nearly destroyed the Imper
 
 **Part I: The Beginning**
 ![20 Primarchs](https://github.com/user-attachments/assets/e0cead94-7f98-421f-a22e-1a4f3ccd416d)
+> The 20 Sons of the Emperor
 
 The Emperor of Mankind has created 20 genetically-engineered super humans for the sole purpose of conquering the galaxy, through the use of his DNA and technologies created deep beneath the Himalayan mountains. With these 20 sons of the Emperor, they’ll lead his armies into space and reunite all the scattered human colonies. 
  
@@ -20,6 +21,7 @@ The Emperor of Mankind has created 20 genetically-engineered super humans for th
  
 **Part II: The Great Crusade**
 ![Proclamation of Warmaster](https://github.com/user-attachments/assets/48ae88a1-babf-4324-a6ec-2f02bd74eebd)
+>Horus Lupercal and his brothers
 
 The God Emperor, Horus Lupercal, and their armies march together and conquer the stars and celestial bodies, one by one. They eventually discover all the primarchs with their own world already bend to their will as their intellect, charisma, and might are otherworldly. Each of them bend their knee to the God Emperor although some were more unwilling than others.
    
@@ -72,7 +74,11 @@ Curze of the Night Lords, torn by his nightmarish visions and endless suffering 
 
 Perturabo a primarch of the Iron Warriors who’s in rivalry of another primarch named Rogal Dorn. He was deprived of affection from his Father and seeks the approval of his brothers easily joins Horus.
 
+![40K-Gallery-0243](https://github.com/user-attachments/assets/48bd58b2-4417-4e2a-b942-e2cc262a321a)
+>Bombing of Istvaan - III
+
 Once he gathered all of his traitor primarchs, he made a plan for he was outnumbered 3-1 when all of their armies combined. He tasked 3 of the loyalist armies and their primarchs in conquering a world known as Istvaan – III which was filled by demonic entities that were released by the Dark Gods of Chaos. Coined as the start of Horus Heresy, Loyalists elements within the traitor primarchs were dropped into the planet from which they were virus-bomb from orbit. This results in the deaths of a multitude of loyalist legionnaires. However, a lone Emperor’s Children loyalist, had a terrible hunch and remained within the fleet, when he saw the virus bombing of Istvaan – III he quickly boarded a small vessel and fled while being pursued.
+
   
   Horus then renounced his oath to his Father and openly rebelled in Istvaan – V. There he waited the response from his Father, not knowing that he already corrupted half of the primarchs. The Emperor’s Children loyalist managed to get into Magnus the Red’s capital home world of Prospero and relay his message to the rebellion of Horus. Magnus in his arrogance, recklessness and selfish pride projects a psychic imagery which penetrates the defensive barriers of the God Emperor’s laboratory in the Himalayas. 
   
@@ -85,7 +91,6 @@ No one knew what was the full scale of the treachery, until Sanguinius manages t
 The God Emperor has recalled all remaining loyalist primarchs so that they can prepare for the incoming battle of Earth against Horus. Horus knowing that they’ll be at a disadvantage sent the Alpha Legion to intercept Guilliman and his Ultramarines Legionnaire from reaching Earth. They made a blitz-krieg towards Earth and siege it for a whole month.
 
 
-
 **Part VII: Death of an Empire**
 
 The battle begins with a torrential rainfall of void bombardments, flak cannons were targeting incoming missiles and void shield protecting Earth from the entire fleet of Horus. Landfall was only made after Horus having his patience tested to its limits lunch one of the larger ship of his fleet into the void shield which destroys both the ship and the void shield.  
@@ -93,8 +98,11 @@ The battle begins with a torrential rainfall of void bombardments, flak cannons 
 What follows was a series of wave attacks made by the Traitor Legions though their numbers and powers were great, there was no cohesion and each have their own agendas. What’s worst is that Lorgar in his pride and ego thought he deserved much more openly rebel against Horus taking a significant amount of his fleet and fleeing the battle. The battle however was going on Horus’ side and the God Emperor made a desperate gamble in order to win against Horus.
   
 With a thought of his head, the God Emperor, Sanguinius and his legion of elite guards teleported inside Horus’s ship called The Vengeful Spirit. Due to the psychic protection made by the Dark Gods of Chaos, they were scattered around the ship. The God Emperor can however telepathically command them to rush towards the center of the ship where Horus is residing in order to slay him.
-    
+
 Sanguinius were the first to arrive, his might and skill are strong but it’s no match for the chaotic might of Horus who were fueled by the Dark Gods. His angelic appearance was all but destroyed and his great wings disheveled from all the blood and injuries. When Horus finally delivered the death blow to his brother, then the God Emperor came.
+
+![Death of Sanguinius](https://github.com/user-attachments/assets/efbe1e17-ece6-41fe-b165-6535c6d9177b)
+>Death of Sanguinius
 
 Seeing how Sanguinius broken and in a pool of blood. The God Emperor flew into a rage but still were unavailable to reach Horus. The God Emperor was brutally beaten and thrown around the room. Only when he comes face to face with Sanguinius’s face is when he wills himself that blinds Horus and struck his own son down with his full psychic might. However, it comes with a price as releasing all of his powers will kill him. It was then when the God Emperor stabbed his most favored son Horus is when Horus shed a tear and realized that he was manipulated by the Dark Gods. The God Emperor knew Horus will be a pawn of chaos in the future, he gave him a true death so that his soul and spirit will forever die and will never be reborn. Thus the Horus Heresy has ended.
 
